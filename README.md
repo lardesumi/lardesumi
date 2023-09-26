@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Larissa ( Mizuki) 😁
+## Bem-vindo(a) ao perfil da Larissa Mizuki 😍
 
  <div>
    <a href="https://github.com/larissdev">
